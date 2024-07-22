@@ -1,2 +1,2 @@
 # Researched-documents
-If you want to view document please click download
+If you want to read document please click download
